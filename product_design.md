@@ -1,13 +1,3 @@
-# Product Design Expert Ideas
+# Product Design Expert Final Selection
 
-1. **Limited Edition Fragrance Line**
-   - Release a seasonal or celebration line with new scents.
-   - *Rationale*: Drives repeat purchases and excites existing customers seeking novelty.
-
-2. **Eco-Friendly Packaging Redesign**
-   - Launch a campaign promoting recyclable/compostable wrappers.
-   - *Rationale*: Reinforces Dove's reputation as a responsible, modern brand.
-
-3. **Interactive Store Displays**
-   - Create in-store sensory displays (e.g., “touch and feel Dove softness”).
-   - *Rationale*: Enhances in-store engagement, strengthens product identity at the point-of-sale.
+**Eco-Friendly Packaging Redesign** is chosen as the top idea. The team discussion reinforced its branding advantages and long-term value, supporting Dove's leadership in sustainability. While it requires investment and clear communication, the strategic rewards and broad appeal make it the strongest candidate.
